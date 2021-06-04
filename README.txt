@@ -1,1 +1,1 @@
-URL: https://gifosss-octidiazm.vercel.app/
+URL: https://gifos-zeta.vercel.app/
